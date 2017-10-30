@@ -27,6 +27,6 @@ If a person engages in any harassing behaviour, we may take any action we deem a
 
 If you are being harassed, or notice someone else is being harassed, or have any other concerns, please contact the team. 
 
-We reserve the right to revise, make exceptions to, or otherwise amend these policies in whole or in part. If you have any questions regarding these policies, please contact Hacksmiths by e-mail at team@hackthepolice.com.
+We reserve the right to revise, make exceptions to, or otherwise amend these policies in whole or in part. If you have any questions regarding these policies, please contact the team by e-mail at team@hackthepolice.com.
 
 
