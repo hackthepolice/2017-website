@@ -27,6 +27,8 @@ If a person engages in any harassing behaviour, we may take any action we deem a
 
 If you are being harassed, or notice someone else is being harassed, or have any other concerns, please contact the team. 
 
+_Whilst the police officers attending the event will be off-duty, and looking forward to a creative and productive weekend working with you, they should not be expected to overlook any offenses. Please exercise your common sense and refrain from bringing or using any illegal substances._
+
 We reserve the right to revise, make exceptions to, or otherwise amend these policies in whole or in part. If you have any questions regarding these policies, please contact the team by e-mail at team@hackthepolice.com.
 
 
